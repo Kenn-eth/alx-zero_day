@@ -1,2 +1,2 @@
 I am loving this game
-It's gettign more fun
+It's getting more fun
